@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AJSINVEST
 - 👀 I’m interested in design 
-- 💞️ I’m can design any type of your choose
+- 💞️ I can design any type of your choose
 - 📫 How to reach me call my number 
 - ☎️ 08038682233
 - ☎️ email on adisaabduljeleel@gmail.com
