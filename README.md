@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AJSINVEST
-- 👀 I’m interested in design 
+- 👀 I’m interested in coding
 - 💞️ I can design any type of your choose
 - 📫 How to reach me call my number 
 - ☎️ 08038682233
